@@ -1,4 +1,4 @@
-#  
+#  top Script for be a lucky block is the best be a lucky block Script, featuring auto-sell and silent aim. Safe and powerful for all your needs.
 
 
 
